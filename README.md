@@ -1,2 +1,1 @@
-# epinkun-
-e
+selamat datang untuk grup parlayers jaya jaya jaya,terutama untuk epin hai epin
